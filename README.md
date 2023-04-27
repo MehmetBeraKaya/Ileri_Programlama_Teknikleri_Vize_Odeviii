@@ -1,0 +1,2 @@
+# Ileri_Programlama_Teknikleri_Vize_Odeviii
+Mehmet Bera Kaya Numara:22040201012
